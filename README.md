@@ -1,2 +1,4 @@
 # Riset-Informatika-H
-Progress
+
+link ETS:
+https://drive.google.com/drive/folders/1FIhonKskGFQUqIWRJApeyiulyaoFxKCc?usp=sharing
